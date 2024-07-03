@@ -1,0 +1,2 @@
+# Luana Notes Curso Tec
+ 
